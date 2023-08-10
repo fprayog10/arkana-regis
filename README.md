@@ -1,11 +1,14 @@
-
 # Arkana.gg Regist With Puppeteer
 
 
 
-## Event Arkana
-#### Arkana IDR 1.000.000 MERDEKA GIVEAWAY
+## Arkana IDR 1.000.000 MERDEKA GIVEAWAY
+
+![Logo](https://paras-ipfs.paras.id/bafybeig2w53xmzbmtagodgvpjnno7zyj4yj6ch5rgffhzneb4fgsjj4xtq)
+
+
 #### Get a chance to win IDR 1.000.000 for 4 persons (250K each) on your OVO or Gopay balance! The winner will be announced on @arkanahq Instagram story.
+
 
  - [arkana.gg](https://arkana.gg/rewards/71889233e919bdf8cebe1ee4868a3fcc)
 
